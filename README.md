@@ -1,1 +1,0 @@
-# ce204-hw1-omer-polat-duygu-ozturk
